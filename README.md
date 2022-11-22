@@ -1,6 +1,7 @@
 # AC-BYPASS-Kernel-injector
 
 # Purchase Private source code + with eac + mrac + be emulator   
+- TG: @extremis_owner
 - Reasonable offers only
 
 # undetected
